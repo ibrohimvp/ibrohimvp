@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ibrohimvp
-- 👀 I’m interested in creating stuff
+- 👀 I like creating stuff
